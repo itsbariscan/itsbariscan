@@ -40,7 +40,7 @@ I'm particularly interested in collaborating on:
 
 - **LinkedIn:** [Baris Can Sayin](https://www.linkedin.com/in/bariscansayin/)
 - **GitHub:** [@itsbariscan](https://github.com/itsbariscan)
-- **Email:** seo.bariscan@gmail.com
+- **Email:** hello@bcsayin.com
 - **SubStack:** [Growth & Tech Insights](https://itsbariscan.substack.com/)
 
 ## 💡 Personal Note
